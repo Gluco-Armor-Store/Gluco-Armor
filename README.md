@@ -1,4 +1,4 @@
-# Gluco Freedom (OFFICIAL Report!) Stabilize Sugar Levels, Optimal Glucose Metabolism
+# Gluco Armor (OFFICIAL Report!) Stabilize Sugar Levels, Optimal Glucose Metabolism
 
 <h1 style="text-align: left;"><strong>Gluco Armor&trade; &ndash; The Ultimate #1 Rated Blood Sugar Formula!</strong></h1>
 <p><strong>OFFICIAL SITE: <a href="https://www.healthsupplement24x7.com/get-gluco-armor">Gluco Armor&trade; | ORDER HERE</a></strong></p>
